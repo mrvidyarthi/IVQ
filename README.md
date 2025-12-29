@@ -1,1 +1,1 @@
-This is Most inportant 50 Interviwe Question By Rohit Tyagi Sir (Ducate)
+This is Most inportant 50 Interviwe Questions By Rohit Tyagi Sir (Ducate)
